@@ -1,0 +1,2 @@
+# downloadnow
+untuk file safelink
